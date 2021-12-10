@@ -1,2 +1,5 @@
-# dawn-of-dynasty-cheat-codes-free-jade-hacks
-Dawn of Dynasty Cheat gift code free jade Hacks guide global version iOS android
+# Dawn of Dynasty Cheat gift code free jade Hacks guide global version iOS android
+
+Dawn of Dynasty Cheat gift code free jade Hacks guide global version iOS android - Dawn of Dynasty how to reroll cheats Rangers usually use longbows and crossbows as weapons. In addition to attacking enemies from a distance, they are good at DPS (damage per second) and crowd control. As the game explains, agility is one of their defining characteristics, which is reflected in their basic attributes - attack (5), defense (3), control (4), recovery (1) and difficulty (4). In other words, they can be very useful, although it will take you some time to master such a role. We can say that the dancer role class is a very interesting class - in RPG, you don't often choose a role that realizes magic through dance, but if you carefully read the dancer's description, you will find that their dance heals their teammates. From an offensive point of view, they can't play much role by waving sticks or double fans, but they can deal damage every second while healing their teammates. The basic attributes are attack (4), defense (2), control (3), recovery (5) and difficulty (3).
+
+<a href="https://windmod.icu/dawn-of-dynasty/">Go here</a>
